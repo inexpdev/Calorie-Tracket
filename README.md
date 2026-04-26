@@ -65,4 +65,4 @@ This privacy policy may be updated in the future. Any changes will be reflected 
 ## 9. Contact
 If you have any questions, you can contact:
 
-**Email:** your-email@example.com
+**Email:** inexp.dev@gamil.com
